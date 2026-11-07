@@ -1,2 +1,0 @@
-# LatihanRumahSakit
-FINAL EXAM LATIHAN RUMAH SAKIT
